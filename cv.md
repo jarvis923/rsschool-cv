@@ -5,7 +5,7 @@
 
 *E-mail:* antonyrko186@gmail.com
 
-*Instagram:* agyshaa_
+*Instagram:* @agyshaa_
 
 ## Briefly About Myself:
 I am currently studying at school, but I spend a lot of time programming. I have a basic knowledge of English, but I'm still developing. I want to get into EPAM. I am fifteen years old.
